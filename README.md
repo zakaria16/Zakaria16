@@ -19,5 +19,5 @@
 |---|---|
 |Phone:| [+233 54 135 5996](tel:+233541355996)|
 |Email:| [zakaria.m1662@gmail.com](mailto:zakaria.m1662@gmail.com)|
-|linkedin|[linkedin.com/in/zakariamohammed](linkedin.com/in/zakariamohammed)|
+|linkedin|[linkedin.com/in/zakariamohammed](https://linkedin.com/in/zakariamohammed)|
 
